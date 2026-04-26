@@ -6,7 +6,7 @@
 
 ---
 
-**25-April-2026**, With my friend Garp. They rendered the background. I made the character & details.
+**25-April-2026**, With my friend Garp. They made the background color. I made the character & details.
 
 <img width="606" height="403" alt="Screenshot (9)" src="https://github.com/user-attachments/assets/f994b9e2-3252-45fc-8ae4-446898746552" />
 
